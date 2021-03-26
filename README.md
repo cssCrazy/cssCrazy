@@ -1,0 +1,4 @@
+- Sup, I’m Daniel.
+- I’m interested in Business and Web Designing.
+- I’m currently learning Web Developing.
+- Discord is the best way to reach me at, Daniel#9999
